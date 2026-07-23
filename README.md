@@ -8,7 +8,7 @@
 ---
 
 ### 📫 Connect With Me
-💼 *Coming soon — portfolio & LinkedIn links!*
+💼 *Coming soon
 
 ---
 
